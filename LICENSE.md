@@ -1,4 +1,4 @@
-
+Get the ultimate Adobe InDesign for macOS preset with Adobe InDesign for macOS automatic Preset: color correction & masking tools. Featuring color correction and masking tools,
 
 
 
